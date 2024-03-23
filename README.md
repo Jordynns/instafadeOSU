@@ -1,5 +1,5 @@
 # instafade-OSU
-### My first osu!std skin hope you like! 9 Colors and 3 Different Hitsound Variations Video showcase and download links below :3!
+### My first osu!std skin hope you like! 9 Color Variations and 3 Different Hitsound Variations Video showcase and download links below :3!
 
 ---
 
