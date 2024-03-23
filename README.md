@@ -9,7 +9,7 @@
 # Download Links
 
 ### Hitsounds 1 [[Click me]](https://www.mediafire.com/folder/uwt9rzu8dwh0z/Hit+Sounds+1)
-### Hitsounds 2 [[Click me]](https://drive.google.com/drive/folders/1FUooSJT7jwAY8eXD66uYAp0edgQ_cOjd?usp=drive_link)
+### Hitsounds 2 [[Click me]](https://www.mediafire.com/folder/5yvcj0r6l7m6z/Hit+Sounds+2)
 ### Hitsounds 3 [[Click me]](https://drive.google.com/drive/folders/1VwHWT1AvAzuQFbu0-u3z17RE7lBxwmjV?usp=drive_link)
 
 # Extra
