@@ -13,7 +13,7 @@
 ### Hitsounds 3 [[Click me]](https://drive.google.com/drive/folders/1VwHWT1AvAzuQFbu0-u3z17RE7lBxwmjV?usp=sharing)
 
 # Extra
-### Any requests for colors/hitsounds/etc feel free to contact me on discord on via YouTube comments on the showcase video!
+### Any requests for colors/hitsounds/style/etc feel free to contact me on discord on via YouTube comments on the showcase video!
 
 ### Discord ID: itsmelodyhere
 ### Showcase video: https://www.youtube.com/watch?v=ElokSXwwneY
