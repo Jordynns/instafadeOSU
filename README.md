@@ -1,6 +1,7 @@
-# instafadeOSU
-### My first osu!std skin hope you like, Video showcase and download links below :3!
+# instafade-OSU
+### My first osu!std skin hope you like! 9 Colors and 3 Different Hitsound Variations Video showcase and download links below :3!
 
+[[Showcase Video]](https://www.youtube.com/watch?v=ElokSXwwneY)
 [![Video Showcase](https://i.imgur.com/qE43zZ8.png)](https://www.youtube.com/watch?v=ElokSXwwneY)
 
 # Download Links
